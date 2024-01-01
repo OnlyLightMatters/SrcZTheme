@@ -1,0 +1,1 @@
+Depending on the work to be done, I use either Photoshop or Inkscape or sometimes both of them to produce PNG images.
